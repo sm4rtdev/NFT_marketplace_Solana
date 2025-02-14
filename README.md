@@ -27,4 +27,4 @@
 
 ## Contact
 
-  If you have a question, contact here: [Telegram: @shiny0103](https://t.me/shiny0103)
+  If you have a question, contact here: [Telegram: @sm4rtdev](https://t.me/sm4rtdev
